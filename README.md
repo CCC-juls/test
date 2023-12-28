@@ -1,2 +1,0 @@
-# intothejpverse
-Blog
